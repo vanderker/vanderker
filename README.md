@@ -88,6 +88,8 @@
  
 ![](https://github.com/user-attachments/assets/bf83fd63-d661-45f6-942e-8738ba2264f2)
 
-![](https://komarev.com/ghpvc/?vanderker&style=flat-square)
+
 
 ###### <p align="center"> none of the pictures used in this readme are mine, credits to the creators.
+
+![](https://hit.yhype.me/github/profile?account_id=107293636)
