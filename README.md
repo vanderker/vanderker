@@ -46,19 +46,6 @@
 
  ![](https://github.com/user-attachments/assets/c37bf71d-733c-4995-bbc5-fb070c50dcce) 
 
-## <p align="center"> INTERESTS
-### <p align="center"> **mediaㅤ ⋮ ㅤmusic**
-<p align="center">ㅤ  rdrㅤ ㅤdeftones ㅤ
-<p align="center">ㅤ  l4dㅤ ㅤlos bunkers ㅤ
-<p align="center"> ㅤjjbaㅤ ㅤkmfdm ㅤ
-
-### <p align="center"> personal
-<p align="center"> drawing, editing, creating/editing carrd, rentry and githubs
-<p align="center"> sleeping, and playing games all day long 
-
-
-
- ![](https://github.com/user-attachments/assets/c37bf71d-733c-4995-bbc5-fb070c50dcce) 
 
 # <p align="center"> IN-GAME
 <p align="center"> I'm usually on safe servers,  near the Sonic the hedgehog zone
